@@ -1,2 +1,2 @@
 # haonanhe.github.io
-This is Haonan He's personal page. :wave:
+Welcome to Haonan He's personal page! :wave:
